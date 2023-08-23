@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ibo43
 - 👀 I’m interested in Cars
 - 🌱 I’m currently learning programing
-- 💞️ I’m looking to collaborate on Apple
+- 💞️ I’m looking to collaborate on JP Peformance
 - 📫 How to reach me NEVER
 
 <!---
